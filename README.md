@@ -1,5 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&weight=200&pause=1000&color=F70A0A&background=FFFFFF00&width=435&lines=github+stuff..%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&weight=200&pause=1000&color=F70A0A&background=FFFFFF00&width=435&lines=github+stuff%3F)](https://git.io/typing-svg)
 
+SIGN MY ATA!
 
 habit + carbon + mike / red 
  _he they_
